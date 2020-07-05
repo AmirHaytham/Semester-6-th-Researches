@@ -1,1 +1,1 @@
-# Semester-6-th-Research-Topics
+# Semester 6-th Research Topics
